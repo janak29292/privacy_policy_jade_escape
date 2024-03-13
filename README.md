@@ -23,7 +23,7 @@ For the purposes of this Privacy Policy:
 
 
 
-- __Company__ (referred to as either "the Company", "We", "Us" or "Our" in this Agreement) refers to Jade Escape.
+- __Company__ (referred to as either "the Company", "We", "Us" or "Our" in this Agreement) refers to cyclotronn.
 
 
 
